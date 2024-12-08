@@ -1,10 +1,4 @@
-                                  ![.](https://file.garden/ZhFz5XtGggibKC4O/Untitled316_20241207231611.png)
- 
- 
- 
- 
- 
- 
+
  ‧ ◜ INFO .
      We are a *system*, whoever we are dressed up as is who we are. (unless stated otherwise.) Our names are either the name in our displayname, Dirk, Aron, or 500^10. We are also objectum!!! Actually objectum, I want to kiss puppets and they genuinely make me blush. -_-; ⏖  
      
@@ -15,7 +9,7 @@
 
 
    
-                                   ![.](https://file.garden/ZhFz5XtGggibKC4O/Untitled316_20241208004022.png)
+  
 
  
   
@@ -26,3 +20,9 @@
     
     ‧ ◜ SOCIALS .
      Discord: 500buttholes10, Tiktok: mattdillons.hair  ⏖
+
+
+
+
+
+   ![.](https://file.garden/ZhFz5XtGggibKC4O/Untitled314_20241207144346.png)
