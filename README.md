@@ -1,15 +1,15 @@
 
  ‧ ◜ INFO .
-     We are a system, whoever we are dressed up as is who we are. (unless stated otherwise.) Our names are either the name in our displayname, Dirk, Aron, or 500^10. We are also objectum!!! Actually objectum, I want to kiss puppets and they genuinely make me blush I love puppets puppets yum ⏖  
+     we are a systemm. also a alpha dave otherlink ⏖  
 
    ‧ ◜ BYI .
-     We are an *endo* system and support consang, if you don't like that, just don't interact.  ⏖
+     we r a ENDO system if you dont like it then idk be sad you cant talk to me  ⏖
 
   ‧ ◜ DNI .
-     Aside from the obvious, we are not comfortable with TCC or supporters or syscourse.   ⏖ 
+     normal dni, TCC, syscourse   ⏖ 
 
     ‧ ◜ SOCIALS .
-     Discord: 500buttholes10, Tiktok: timaeustested ⏖
+     discord: 500buttholes10, tiktok: timaeustested ⏖
    
    
   
